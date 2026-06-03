@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Somnath-26
 - 👀 I’m interested in learning NEW things related to Tech idea's
-- 🌱 I’m currently learning Computer Science Engineering 
+- 🌱 I’m completed my graduation in Computer Science Engineering 
 - 💞️ I’m looking to collaborate on new Project
 - 📫 How to reach me by mail ID (Somnathdeymodak2611@gmail.com)
 
